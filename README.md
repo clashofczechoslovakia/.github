@@ -1,1 +1,0 @@
-# Clash Of Czechoslovakia
