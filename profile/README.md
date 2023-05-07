@@ -1,5 +1,5 @@
-![a](https://raw.githubusercontent.com/eventparadise/.github/main/clashofczechoslovakiasmall.png)  
+![a](https://cocturnaj.eu/assets/logo.6a99954c_Z1UHkOG.png)  
 <br/>
-Jsme skupina lidí, kterou spojuje jediné. Udělat ten nejlepší turnaj na naší scéně.  
+Tohle zažiješ jenom na CoCu... Připoj se k nám!  
 Náš web: [cocturnaj.eu](https://cocturnaj.eu/)
 
